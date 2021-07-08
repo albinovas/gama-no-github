@@ -1,0 +1,1 @@
+Estou gostando muito do curso, são conceitos básicos mas como não fazem parte do meu dia-a-dia é importante passar por eles para relembrar e/ou reforçar.
